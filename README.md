@@ -10,10 +10,6 @@ These few quotes summarise the point nicely:
 *"The numbers have no way of speaking for themselves. We speak for them. We imbue them with meaning."*
 ― Nate Silver, The Signal and the Noise
 
-Whilst I personally love this quote, I would respond with:
-
-*"Let the data talk, all hours spent are hours wasted if we simply act as attorneys for the guilty party."*
-― Me.
 
 # Topics of Interest
 - Government debt and the UK budget 2021 (Announced March 3, 2021)
